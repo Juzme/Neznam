@@ -1,2 +1,0 @@
-# Neznam
-Aber neam
